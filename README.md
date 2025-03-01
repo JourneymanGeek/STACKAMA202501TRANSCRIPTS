@@ -1,0 +1,1 @@
+Quick and dirty upload of the transcripts here https://meta.stackexchange.com/questions/407025/recapping-stack-s-first-community-wide-ama-ask-me-anything?noredirect=1#comment1356406_407025 cause PDFs are sad. 
